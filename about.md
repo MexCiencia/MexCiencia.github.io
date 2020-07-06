@@ -18,4 +18,4 @@ Grupo de mexicanos comprometidos con la divulgación de avances científicos en 
 
 ### Contacto para colaboración y preguntas
 
-[email@domain.com](mailto:email@domain.com)
+[mxciencia@gmail.com](mailto:mxciencia@gmail.com)
